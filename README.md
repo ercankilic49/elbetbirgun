@@ -1,0 +1,2 @@
+# elbetbirgun
+Yuklenmeyenn lerim
